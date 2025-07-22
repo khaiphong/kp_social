@@ -1,2 +1,8 @@
-# kp_social
-Social to promote "Core Values of Honesty &amp; Care".
+# KpSocial
+
+Activities and Places for generating social works to promote [ <b>Core Values of "#Truth &gt;&lt; #Honesty &gt;&lt; #Care &gt;&lt;"</b> ]. <b>GsLp (Global Services Local Presence) / ThankYou Club</b> - a NfP (Not-for-Profit) social place donated and driven by people benefitting from the community supports for their developments and successes - is the starting point to <b>promote local communities to the World and bring global services in economic efficiencies to the local vibrant economy</b>. 
+
+It is an <b>important link to directly connect the Sources of <u>Productions and Services</u> to the demand sides of <u>Consumptions</u> raising Value of the values toward What Count</b> in <a href="https://ica.coop/en/" target="_blank">Stakeholders Democratic Systems</a> according to <a href="https://blog.khaiphong.io/2023/09/agent-of-changes.html" target="_blank">underlying natural laws to quickly turn all qualified personas into agents of changes</a> to <u>transform the Wrong of past Isms and Religions toward the <a href="https://news.cgtn.com/news/2019-06-28/What-is-Society-5-0-at-the-G20-summit--HT4YQ8BXlC/index.html" target="_blank">Right of people-based Societies 5.0</a></u>. 
+
+According to our field research from the past 50+ years of exploring consciousness technologies, only from Humanity upward one can be "<b>outside-the-box of conflicting consciousness</b>" in high above "<b>No Conflict Consciousness [ glimpsed or touched ] and communicated</b>" by many dedicated explorers in all civilizations from entire history of humanity, Now it is protected by the <a href="https://www.youtube.com/watch?v=KVOrOkxeCD4" target="_blank">Rule-of-Law instead of Rule-by-Law</a> in all autocratic systems.
+ 
